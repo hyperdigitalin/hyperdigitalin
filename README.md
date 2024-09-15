@@ -56,7 +56,7 @@ We’d love to help you bring your vision to life!
 🌐 **Website:** [hyperdigital.com](https://www.hyperdigital.in)  
 📱 **Phone:** +91-9733203984
 
-Follow us on [LinkedIn](https://www.linkedin.com/hyperdigitalin) | [Twitter](https://x.com/hyper_digital_) | [Instagram](https://www.instagram.com/hyperdigital.in)
+Follow us on [LinkedIn](https://www.linkedin.com/company/hyperdigitalin) | [Twitter](https://x.com/hyper_digital_) | [Instagram](https://www.instagram.com/hyperdigital.in)
 
 ---
 
